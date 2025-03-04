@@ -1,1 +1,1 @@
-You can add issue for [TranslateManga](https://translatemanga.net)
+You can add issues for [TranslateManga](https://translatemanga.net)
